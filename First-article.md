@@ -25,3 +25,6 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;**Kuts Denys** :
 &nbsp;&nbsp;sceptics, sceptics everywehre
 
+
+**Stepan**: &nbsp;&nbsp;
+Не удивлюсь если главным героем вдруг станет чернокожий гей
