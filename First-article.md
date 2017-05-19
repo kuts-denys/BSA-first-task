@@ -22,6 +22,12 @@
 **Illya Evseev** :&nbsp;&nbsp;
 Очень сомневаюсь на следование оригиналу хотя бы на уровне игровой серии. Скорее всего будет тягомотина с однообразными не особо связанными между собой сериями про ведьмачьи заказы. А жаль. В этой вселенной можно было бы создать что-то по настоящему шедевральное. Всё готово - бери и делай по книге и по игре.
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;**Kuts Denys** :
-&nbsp;&nbsp;sceptics, sceptics everywehre
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;**Kuts Denys**:&nbsp;&nbsp;sceptics, sceptics everywehre
 
+
+**Stepan**: &nbsp;&nbsp;
+Не удивлюсь если главным героем вдруг станет чернокожий гей
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;**Kuts Denys**:&nbsp;&nbsp; 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![black geralt](http://u.kanobu.ru/comments/images/dfebbed7-a7fe-4211-8abc-d05c2b43d6fc.jpeg)
